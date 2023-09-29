@@ -1,4 +1,4 @@
-### Hi, I'm Yun, Junior software engineer 👋
+### Hi there 👋
 
 ### :fire: My Stats :
 
